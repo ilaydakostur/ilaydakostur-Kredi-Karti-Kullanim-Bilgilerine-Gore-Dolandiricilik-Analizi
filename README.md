@@ -1,0 +1,1 @@
+# ilaydakostur-Kredi-Karti-Kullanim-Bilgilerine-Gore-Dolandiricilik-Analizi
